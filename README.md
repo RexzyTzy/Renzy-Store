@@ -1,2 +1,4 @@
 # Renzy-Store
-web
+jadi lah seperti semut
+yang berusaha namun tidak kunjung berhasil
+tapi tetap berusaha
